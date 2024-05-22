@@ -1,0 +1,1 @@
+Com Fé no senhor agora vai!
